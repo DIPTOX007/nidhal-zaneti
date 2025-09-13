@@ -36,7 +36,7 @@
 ---
 
 ### 🏆 Awards & Achievements
-✨ To be filled soon… (Hackathons, Competitions, Certifications...)  
+✨ To be filled soon…  
 
 ---
 
